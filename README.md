@@ -1,0 +1,2 @@
+# Shin
+Ingin bersenang senang
